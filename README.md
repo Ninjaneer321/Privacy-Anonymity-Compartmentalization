@@ -87,6 +87,9 @@ The Western world faces multifaceted challenges from entities intent on eroding 
 > * [**Great talk**: Natasha Hausdorff responds to the ICRC on the Geneva Conventions](https://youtu.be/SPpGMc1OyLs?si=vvz52gmlfUPagE_M)
 >
 > * [**The Foundation for Defense of Democracies**: FDD Identifies 19 Websites as Part of an Iranian Global Influence Operation](https://www.fdd.org/analysis/2024/09/05/fdd-identifies-19-websites-as-part-of-an-iranian-global-influence-operation/)
+>
+>* [**U.S. Department of the Treasury**: Treasury Sanctions Iranian Regime Agents Attempting to Interfere in U.S. Elections](https://home.treasury.gov/news/press-releases/jy2621)
+>
 
 <br>
 
